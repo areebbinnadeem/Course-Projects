@@ -1,1 +1,1 @@
-## Projects created as part of Course Work
+## Projects created as part of course work
